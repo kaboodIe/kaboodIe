@@ -8,7 +8,7 @@
 
 <p align="center"> will continue editing read.me later ok? ok
 
-gonna be less online on pt
+<p align="center> gonna be less online on pt
 
 </p>
 
