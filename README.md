@@ -8,6 +8,8 @@
 
 <p align="center"> will continue editing read.me later ok? ok
 
+gonna be less online on pt
+
 </p>
 
 <p align="center"> <img width="70" src="https://komarev.com/ghpvc/?username=spiralwindly&label=bunnies&color=blue">
