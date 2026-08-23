@@ -8,7 +8,7 @@
 
 <p align="center"> will continue editing read.me later ok? ok
 
-<p align="center"> less online on pt (unless invited) + might or not continue the @ptfashion project
+<p align="center"> less online on pt (unless invited) + might or not continue the @pt-fashion project
 
 </p>
 
