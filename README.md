@@ -2,4 +2,4 @@
 
 </p>
 
-remaking all over again.. 😪
+TOO lazy to do this rn
